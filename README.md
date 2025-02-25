@@ -1,2 +1,1 @@
-# Tugas-Multimedia
-tugas dari bapak Rizki untuk membuat websitr
+# HSC054_OURAGEUSALLSTAR
